@@ -1,0 +1,1 @@
+# Atividade-de-reposi-o-do-curso-de-Administra-o---PENSAMENTO-DE-DESIGN
